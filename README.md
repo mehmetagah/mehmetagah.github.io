@@ -1,3 +1,3 @@
-## Kisisel Bloguma hosgeldiniz!
+## Kişisel Bloğuma hoşgeldiniz!
 
-Bu blogda okuduklarimdan aldigim notlar ve yari akademik yazilar bulabilirsiniz. Surecin nasil ilerleyecegine dair pek bir ongorum yok ama bir ilerlemenin ve az da olsa devamli bir cabanin olmasi su an icin tek temennim. 
+Bu blogda okuduklarımdan aldığım notlar ve yarı akademik yazılar bulabilirsiniz. Sürecin nasıl ilerleyeceğine dair pek bir öngörüm yok ama bir ilerlemenin ve az da olsa devamlı bir çabanın olması şu an için tek temennim. 
